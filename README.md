@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zekk98-design
+- 👋 Hi, I’m Zack.
 - 👀 I’m interested in ... creating amazing depth filled rpgs!
 - 🌱 I’m currently learning ... everyone is always learning :)
 - 📫 How to reach me ... zackkahea@hotmail.com
